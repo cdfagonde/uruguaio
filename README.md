@@ -1,1 +1,1 @@
-# uruguaio se parece com o Alvaro Pereira
+# uruguaio se parece com o Alvaro Pereira sem cabelo
